@@ -1,4 +1,4 @@
 Repo Description
 ===
 
-- Any not used domains will parking with this repo space ...
+- 5Cents @ ptt , My Oberveration , sure has bias . 
