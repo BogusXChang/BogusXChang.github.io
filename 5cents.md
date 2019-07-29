@@ -1,0 +1,48 @@
+# Confirmed List
+- kaan888
+ - 96-8-118-228-host.colocrossing.com.
+ - xxx
+- aynmeow
+ - Hinet
+- safelyfuck
+- esunbank
+- ilw4e
+- andy199113
+- diefishfish
+- jma306
+- realtw
+- gn1384181
+- cayman2009
+  - DigitalOcean
+- gogobar
+- taiwan009
+- iChina
+- KangSuat
+  - Hinet 36.238.80.249
+- victor3099
+  - Vultr 167.179.96.175
+- ottoyu
+- wo2323
+- ILoveKMT
+- TWKiller
+- kusowan
+- flavorBZ
+- deann
+# Supsicous List
+- dferww55
+- koehie
+- falken
+- cpg811106
+- hjgx
+- meredith001
+ - Hinet
+- zozoz
+- xsdboy
+- SungHyun
+- rriver
+- jinshiG
+- mayjan
+- FlashMan
+- susaku
+- CenaC
+- bkyu
