@@ -47,3 +47,7 @@
 - CenaC
 - bkyu
 - eddisontw
+# Olympics special area (For china cheerleaders)
+- PS: said sports is not politics is INCLUDED.
+- a810086
+- oxOOxo
